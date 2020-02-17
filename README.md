@@ -30,7 +30,7 @@ More-powerful words to less-powerful words:
 
 * Why, how, what
 
-* Who, when where
+* Who, when, where
 
 * Which, yes/no, true/false
 
