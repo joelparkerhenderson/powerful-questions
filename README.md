@@ -21,7 +21,7 @@ Summary notes of [The Art of Powerful Questions - Catalyzing Insight, Innovation
 ## Introduction
 
 
-"Questions can be like a lever you use to pry open the stuck lid on a paint can ... If we have a short lever, we can only just crack openthe lid on the can. But if we have a longer lever, or a more dynamic question, we can open that can upmuch wider and really stir things up.... If the right question is applied, and it digs deep enough, then we can stir up all the creative solutions.”
+"Questions can be like a lever you use to pry open the stuck lid on a paint can ... If we have a short lever, we can only just crack open the lid on the can. But if we have a longer lever, or a more dynamic question, we can open that can up much wider and really stir things up.... If the right question is applied, and it digs deep enough, then we can stir up all the creative solutions.”
 
 
 ### What are powerful question words?
@@ -103,7 +103,7 @@ What’s important to you about (your specific situation) and why do you care?
 
 What draws you/us to this inquiry?
 
-What’s our intention here? What’s the deeper pur-pose (the big “why”) that is really worthy of ourbest effort?
+What’s our intention here? What’s the deeper pur-pose (the big “why”) that is really worthy of our best effort?
 
 What opportunities can you see in (your specificsituation)?
 
@@ -113,7 +113,7 @@ What are the dilemmas/opportunities in (your specific situation)?
 
 What assumptions do we need to test or challenge here in thinking about (your specific situation)?
 
-What would someone who had a very different set of beliefs than we do say about (your specificsituation)?
+What would someone who had a very different set of beliefs than we do say about (your specific situation)?
 
 
 
@@ -123,9 +123,9 @@ What’s taking shape? What are you hearing underneath the variety of opinions b
 
 What’s emerging here for you? What new connections are you making?
 
-What had real meaning for you from what you’veheard? What surprised you? What challenged you?
+What had real meaning for you from what you’ve heard? What surprised you? What challenged you?
 
-What’s missing from this picture so far? What is itwe’re not seeing? What do we need more clarityabout?
+What’s missing from this picture so far? What is it we’re not seeing? What do we need more clarityabout?
 
 What’s been your/our major learning, insight, or discover so far?
 
@@ -140,19 +140,19 @@ What would it take to create change on thisissue?
 
 What could happen that would enable you/us tofeel fully engaged and energized about (your specific situation)?
 
-What’s possible here and who cares? (rather than“What’s wrong here and who’s responsible?”)
+What’s possible here and who cares? (rather than "What’s wrong here and who’s responsible?")
 
 What needs our immediate attention going forward?
 
 If our success was completely guaranteed, whatbold steps might we choose?
 
-How can we support each other in taking the nextsteps? What unique contribution can we eachmake?
+How can we support each other in taking the next steps? What unique contribution can we eachmake?
 
 What challenges might come our way and howmight we meet them?
 
-What conversation, if begun today, could ripple outin a way that created new possibilities for thefuture of (your situation)?
+What conversation, if begun today, could ripple out in a way that created new possibilities for the future of (your situation)?
 
-What seed might we plant together today thatcould make the most difference to the future of (your situation)?
+What seed might we plant together today that could make the most difference to the future of (your situation)?
 
 
 ### Questions to ask about your questions
