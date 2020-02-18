@@ -138,13 +138,13 @@ If there was one thing that hasn’t yet been said in order to reach a deeper le
 
 What would it take to create change on thisissue?
 
-What could happen that would enable you/us tofeel fully engaged and energized about (your specific situation)?
+What could happen that would enable you/us to feel fully engaged and energized about (your specific situation)?
 
 What’s possible here and who cares? (rather than "What’s wrong here and who’s responsible?")
 
 What needs our immediate attention going forward?
 
-If our success was completely guaranteed, whatbold steps might we choose?
+If our success was completely guaranteed, what bold steps might we choose?
 
 How can we support each other in taking the next steps? What unique contribution can we eachmake?
 
