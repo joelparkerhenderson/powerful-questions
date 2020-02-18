@@ -103,9 +103,9 @@ What’s important to you about (your specific situation) and why do you care?
 
 What draws you/us to this inquiry?
 
-What’s our intention here? What’s the deeper pur-pose (the big “why”) that is really worthy of our best effort?
+What’s our intention here? What’s the deeper purpose (the big “why”) that is really worthy of our best effort?
 
-What opportunities can you see in (your specificsituation)?
+What opportunities can you see in (your specific situation)?
 
 What do we know so far/still need to learn about(your specific situation)?
 
