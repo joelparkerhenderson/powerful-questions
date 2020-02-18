@@ -136,7 +136,7 @@ If there was one thing that hasn’t yet been said in order to reach a deeper le
 
 ### Questions for creating forward movement
 
-What would it take to create change on thisissue?
+What would it take to create change on this issue?
 
 What could happen that would enable you/us to feel fully engaged and energized about (your specific situation)?
 
